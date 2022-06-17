@@ -1,3 +1,3 @@
 # BSD-AMOGUS-G_SUS
 [GOOGLE](https://google.com)
-[PR0YY](https://what-the-hell.mrsussybaka.repl.co/ayyya.html)
+[PR0YY](https://p.lexiapower.ga)
